@@ -19,4 +19,4 @@
 
 总的来说，想要免费在线观看日本AV资源并非难事，但前提是选择正确、安全的途径。通过正规网站获取资源，不仅能保障良好的观影体验，更能避免不必要的网络安全隐患。理性获取资源，合理安排观影时间，才能真正享受网络带来的便利与娱乐。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/xx45757/668812 ）</span>
